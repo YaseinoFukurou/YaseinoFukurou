@@ -2,7 +2,7 @@
 
 ###
 
-<img align="right" height="150" src="https://pa1.aminoapps.com/6917/2666a78a630aef4900d046d39d63bf76594339b8r1-355-200_hq.gif"  />
+<img align="right" height="150" src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExazd0NmZxY3R3OTI1aDFoc3NvN3Z0Y3kzY2ljcjBhb29mYTV5aG05cSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/7NP07dTr1gZstAan9f/giphy.gif"  />
 
 ###
 
